@@ -1,7 +1,7 @@
 # notes
 Youtube講義のノートです。
 
-https://www.youtube.com/channel/UCID1wkhnyH51OPlz1KG75bQ
+https://www.youtube.com/channel/UCID1wkhnyH51OPlz1KG75bQ/playlists
 
 ご自由にお取りください。
 
